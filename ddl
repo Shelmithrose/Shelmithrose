@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Shelmithrose
+- 👀 I’m interested learning
+- 🌱 I’m currently learning data
+- 💞️ I’m looking to collaborate on
+- 📫 How to reach me 
+- 😄 Pronouns: her
+-⚡ F
